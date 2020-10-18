@@ -1,2 +1,3 @@
 # Undertale-Au-Underfell
 This is a project where a full version of Underfell will be created.  More Information in new branch. im happy about making games and i think this will be a good start since underfell is a popular undertale au.
+Hello my name is Everett I am 10 years old(yes i know im little young to write code lol)now i know that undertale aus have high expectations and can take long to make but i think it will suit me and who ever likes undertale considering that i like undertale alot and i like to watch it(my fave undertale youtuber is Merg)so i think that overall that this will be fun i might also in the future make other games.
